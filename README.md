@@ -4,8 +4,8 @@ Not really sure what to put, since I didn't make it and all. It's basically just
 
 ## About Me
 
-Twitter: www.twitter.com/Brutzii
-That's literally all I have at the moment. Should change soon.
+*Twitter: www.twitter.com/Brutzii
+*That's literally all I have at the moment. Should change soon.
 
 ## Special Thanks
 
